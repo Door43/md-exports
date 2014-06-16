@@ -1,0 +1,31 @@
+Eve
+===
+
+Facts:
+------
+
+This was the name of the first woman. Her name means “life” or
+“living.”
+
+-   God personally formed Eve from a rib that he took out of Adam.  -
+Eve was created to be Adam's “helper.” She came alongside Adam to
+    assist him in the work that God gave him to do.
+-   Eve was tempted by the snake  and was the first to sin by
+    eating the fruit that God said not to eat.
+
+See also: **Adam**
+
+Examples from the Bible stories:
+--------------------------------
+
+    Then God took one of Adam's ribs and made it into a woman and brought
+    her to him.  But there was a crafty snake in the garden. He asked
+    the woman, “Did God really tell you not to eat the fruit from
+    any of the trees in the garden?” The man named his wife **Eve**,
+    which means “life-giver,” because she would become the mother of
+    all people.  God promised that a descendant of **Eve** would be born
+    who would crush the snake’s head.  Satan spoke through the snake
+    in the garden in order to deceive **Eve**.  When Adam and **Eve**
+    sinned, it affected all of their descendants.  Because Adam and
+    **Eve** disobeyed God and brought sin into this world, God cursed
+    it and decided to destroy it.

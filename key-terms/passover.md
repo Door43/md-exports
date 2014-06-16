@@ -1,0 +1,32 @@
+Passover
+========
+
+Facts:
+------
+
+This was a celebration that God wanted the Israelites to do each year in
+order to remember how God “passed over” the houses of the Israelites
+and did not kill their sons when he killed the firstborn sons of every
+Egyptian family.
+
+-   The Passover Feast, or celebration, includes a special meal that
+    reminds people of the meal they ate that night. The meal included
+    a lamb without any defect that they killed, roasted, and shared,
+    as well as bread made without yeast.
+-   God told the Israelites to eat this meal every year in order to
+    remember and celebrate how God “passed over” their houses and
+    how he set them free from slavery in Egypt.
+
+Examples from the Bible stories:
+--------------------------------
+
+    God commanded the Israelites to remember his victory over the
+    Egyptians and their deliverance from slavery by celebrating
+    the **Passover** every year.  Every year, the Jews celebrated
+    the **Passover**. This was a celebration of how God had saved
+    their ancestors from slavery in Egypt many centuries earlier.
+    Jesus celebrated the **Passover** with his disciples.  When God
+    saw the blood, he passed over their houses and did not kill their
+    firstborn sons. This event is called the **Passover**.  Jesus is our
+    **Passover** Lamb. He was perfect and sinless and was killed at the
+    time of the **Passover** celebration.

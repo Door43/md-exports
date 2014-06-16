@@ -1,0 +1,30 @@
+hell
+====
+
+Definition:
+-----------
+
+Hell is a place of unending pain and suffering that God prepared for
+punishing Satan and the evil spirits that follow him.
+
+-   Because people have sinned and rebelled against God, they deserve
+    eternal punishment in hell.
+-   Hell is described as a place of fire and anguish.  -   God does not
+want anyone to go to hell, so he provided a way to be
+    saved from it.
+-   God sent Jesus to be a sacrifice for people's sins so that if they
+    believe in Jesus they will not go to hell.
+-   If people reject salvation through Jesus, they will suffer in hell
+    forever.
+-   Hell could be translated as, “place of darkness and anguish.”
+
+See also: **heaven**, **eternal life**, **death**
+
+Examples from the Bible stories:
+--------------------------------
+
+     will throw them into **hell**, where they will weep and grind
+    their teeth in anguish forever. A fire that never goes out will
+    continually burn them, and worms will never stop eating them.
+    will throw Satan into **hell** where he will burn forever, along
+    with everyone who chose to follow him rather than to obey God.

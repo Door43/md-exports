@@ -1,0 +1,35 @@
+Baal
+====
+
+Facts:
+------
+
+Baal was the name of a false god that was worshiped by several people
+groups in the land of Canaan.
+
+-   The name “Baal” means “lord.” The worship of Baal was
+therefore a
+    direct challenge to the authority of Yahweh, who alone is the
+    true Lord.
+-   The Israelites sinned by also worshiping Baal.  -   There were 450
+prophets of Baal in the northern kingdom of Israel
+    during the reign of King Ahab. The prophet Elijah set up a test for
+    the prophets of Baal and proved that their god does not exist. As
+    a result, the people killed the prophets of Baal and worshiped only
+    Yahweh for a period of time.
+
+See also: **Elijah**, **Yahweh**, **Ahab**
+
+Examples from the Bible stories:
+--------------------------------
+
+    Ahab was an evil man who encouraged people to worship a false god
+    named **Baal**.  All the people of the entire kingdom of Israel,
+    including the 450 prophets of **Baal**, came to Mount Carmel. Elijah
+    said to the people, “How long will you keep changing your mind? If
+    Yahweh is God, serve him! If **Baal** is God, serve him!” Then
+    Elijah said to the prophets of **Baal**, “Kill a bull and prepare
+    it as a sacrifice, but do not light the fire.  Then the prophets of
+    **Baal** prayed to **Baal**, “Hear us, O **Baal**!” the people
+    captured the prophets of **Baal**. Then Elijah took them away from
+    there and killed them.

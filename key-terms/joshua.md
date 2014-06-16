@@ -1,0 +1,40 @@
+Joshua
+======
+
+Facts:
+------
+
+Joshua was an Israelite man who trusted and served God all his life. He
+became an important leader of God's people.
+
+-   As a young man, Joshua was Moses's helper.  -   Joshua was one of
+the twelve spies that Moses sent to explore the
+    Promised Land.
+-   Along with Caleb, Joshua showed his courage and trust in God when he
+    encouraged the Israelites to obey God's command to enter the Promised
+    Land and defeat the Canaanites, even though the other spies argued
+    against them.
+-   Joshua and Caleb were the only men of their generation who were
+    allowed to enter the Promised Land.
+-   God appointed Joshua to lead the people of Israel into the Promised
+    Land.
+-   Joshua led the Israelites to defeat the people in the Canaanite city
+    of Jericho, as God had told him to do.
+-   Joshua divided up the Promised Land for the tribes of Israel.
+
+See also: **Moses**, **Promised Land**
+
+Examples from the Bible stories:
+--------------------------------
+
+    When the Israelites reached the edge of Canaan, Moses chose twelve
+    men, one from each tribe of Israel. He gave the men instructions to go
+    and spy on the land to see what it was like.  Immediately Caleb and
+    **Joshua**, the other two spies, said, “It is true that the people
+    of Canaan are tall and strong, but we can certainly defeat them!”
+    Except for **Joshua** and Caleb, everyone who is twenty years old or
+    older will die there and never enter the Promised Land.” Moses was
+    now very old, so God chose **Joshua** to help him lead the people.
+    **Joshua** was a good leader because he trusted and obeyed God.
+    After the people crossed the Jordan River, God told **Joshua**
+    how to attack the powerful city of Jericho.
